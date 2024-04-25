@@ -1,0 +1,1 @@
+Website CV yang saya buat adalah platform yang informatif dan menarik. Menampilkan pengalaman, pendidikan, dan keterampilan secara komprehensif. Desain yang bersih dan navigasi yang intuitif untuk memudahkan pengunjung mendapatkan gambaran lengkap tentang profil dan pencapaian saya.
